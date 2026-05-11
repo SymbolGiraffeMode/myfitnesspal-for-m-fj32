@@ -1,4 +1,4 @@
-
+Get the ultimate MyFitnessPal for macOS extension with professional MyFitnessPal for macOS Extension | social-sharing + voice-coaching. Featuring social-sharing and
 
 
 
